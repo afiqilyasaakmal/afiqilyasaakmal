@@ -1,2 +1,2 @@
 # Welcome to My Profile!
-The name's Afiq Ilyasa Akmal. I'm an undergraduate student currently enrolling Information Systems at University of Indonesia.
+My name's Afiq Ilyasa Akmal. I'm an undergraduate student majoring in Information Systems at University of Indonesia, Depok.
